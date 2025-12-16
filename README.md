@@ -1,1 +1,1 @@
-![Tumblr_l_118062615083867](https://github.com/user-attachments/assets/7619bc4e-eaa9-4aee-a35f-52650f213519)
+<img width="256" height="256" alt="Tumblr_l_51913214366079" src="https://github.com/user-attachments/assets/1b4f1c84-449f-47b3-8ca4-3354a336c729" />
